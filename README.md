@@ -1,3 +1,3 @@
 # SCozzy777
 
-Hey its me SCozzy!
+はじめまして、SCozzy です! よろしくお願いします!
